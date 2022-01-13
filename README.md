@@ -1,0 +1,2 @@
+# altswitch
+The mother of all soon to be built Apps &amp; Services for Web 3.0 that will generate revenue of rewards back to its community.  AltSwitch is a first-of-its-kind Binance Smart Chain rewards token that gives you absolute control over which rewarded coin you receive.  Simply by holding Altswitch (ALTS) in your wallet, you gain access to rewards from any of the listed coins on the Binance Smartchain and tons of token utilities soon. Take part of the privilege to the unlimited potential of this pioneering smart chain project and be part of a solid community.
